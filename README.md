@@ -6,3 +6,4 @@ selim burak
 github dan bilgisayara gönderme
 tektat server a deneme
 buradan bilgisayara :):):)
+yaptımm beee
